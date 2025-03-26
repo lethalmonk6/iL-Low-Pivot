@@ -10,5 +10,7 @@ Printed at JLC in 9600 Resin
 ![PXL_20250326_231238508](https://github.com/user-attachments/assets/635d49f0-ac09-441e-83d1-66f9515bd200)
 ![PXL_20250326_231210015](https://github.com/user-attachments/assets/12b0a53f-ddaa-42dd-a235-807a2afa8fbe)
 ![PXL_20250326_231105756](https://github.com/user-attachments/assets/c1856d2a-afb1-4da7-ab11-826613d9500c)
+![PXL_20250326_231830233](https://github.com/user-attachments/assets/1b611416-8610-4840-a7ae-a2387850ce02)
+
 
 
